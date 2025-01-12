@@ -1,0 +1,1 @@
+It's a simple program written in swift programming language. To move forward is the road upwards, even when we have to return to earth or stand stable for all those who support us and we support them too. 
